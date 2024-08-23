@@ -1,1 +1,0 @@
-# Prakticum_2024
